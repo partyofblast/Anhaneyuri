@@ -1,6 +1,6 @@
  ⠀ `🎧` 　An / An**nie**　┄　bodily 14 　𝜚     
- ⠀⠀⠀⠀⠀⠀[sys host](https://pluralpedia.org/w/Host)　♡　[An Fictive](https://projectsekai.fandom.com/Shiraishi_An) ⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀𓎟𓎟 ⠀⠀SOCIALS
+ ⠀⠀⠀⠀⠀⠀[sys host](https://pluralpedia.org/w/Host)　♡　[An Fictive](https://projectsekai.fandom.com/Shiraishi_An) ⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ 𓎟𓎟 ⠀⠀SOCIALS
 
 @Vampireanhane on twt,
 @Rekkavbs on tt,
