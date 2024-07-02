@@ -1,15 +1,8 @@
-　`txtxt`　　 𖨂　　**An  or  Annie**'*s*  intro
- 　　︶︶　　 ﾟ  　audhd  bpd⠀✦⠀osdd sys  
-  ⠀⠀⠀⠀ [sys host](https://pluralpedia.org/w/Host)　♡　[An Fictive](https://projectsekai.fandom.com/Shiraishi_An) ⠀⠀⠀
+⠀⠀ℰ 　an ⠀ ˘⠀ xixi　₎₎⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀ ⠀⠀⠀⠀ᛝ ⠀she⠀⎠⠀xe⠀⠀⠀![](https://files.catbox.moe/ki837i.gif)
 
-  
-  ⠀⠀⠀⠀𝜗⠀⠀⠀byf / int⠀⠀( please read. )  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ ⠀𓏴⠀An [introject](https://projectsekai.fandom.com/wiki/Shiraishi_An) ⠀⠀ᛝ ⠀ 5teen⠀⠀⠀⠀⠀⠀⠀
+⠀⠀✿⠀⠀links⠀( please read! )⠀⠀༢ུ·⠀⠀⠀⠀⠀⠀⠀
+⠀⠀    ⠀⠀~~◡◡◡◡◡◡◡~~ ![](https://files.catbox.moe/wznlba.gif) ~~◡◡◡◡◡◡◡~~
 
-i make a lot of "killing myself" jokes, and mild nsfw jokes if my behavior makes you uncomfy please lmk! if you see us then feel free to say hi !!  and pretty please read our [blooming.boo](https://blooming.boo/ankoha) which is a work in progress. . . 
-
-
-⠀⠀⠀⠀𝜗⠀⠀⠀socials ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-@vampireanhane on twt
-
-> and ask for other socials :D
+⠀⠀[about me](https://rentry.co/tpob)⠀![](https://files.catbox.moe/kr8wlr.gif)⠀[do you see me?](https://rentry.co/vividubasquad)
